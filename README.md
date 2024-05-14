@@ -1,0 +1,1 @@
+# Verilenler-sturukturu-2ci-isim
